@@ -4,7 +4,7 @@
 
 ## Overview
 
-"The Hunger Games" is a gripping science fiction adventure film set in a dystopian future. Based on the best-selling novel by Suzanne Collins, the movie explores a world where children are selected to fight to the death in a televised event. It's a story of survival, rebellion, and the indomitable spirit of the human will.
+"The Hunger Games" is a gripping science fiction adventure serie of films set in a dystopian future. Based on the best-selling novel by Suzanne Collins, the movie explores a world where children are selected to fight to the death in a televised event. It's a story of survival, rebellion, and the indomitable spirit of the human will.
 
 ## Key Characters
 
