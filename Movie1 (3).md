@@ -7,7 +7,7 @@
 
 ## Overview
 
-"Casa del Papel," known as "Money Heist" in English, is a gripping Spanish television series that has captivated audiences worldwide. This thrilling crime drama revolves around a group of robbers who plan and execute heists on the Royal Mint of Spain and the Bank of Spain. The series is known for its intricate plot, memorable characters, and the enigmatic leader known as "The Professor."
+"La Casa del Papel," known as "Money Heist" in English, is a gripping Spanish television series that has captivated audiences worldwide. This thrilling crime drama revolves around a group of robbers who plan and execute heists on the Royal Mint of Spain and the Bank of Spain. The series is known for its intricate plot, memorable characters, and the enigmatic leader known as "The Professor."
 
 
 ## Key Characters
@@ -20,7 +20,7 @@
 
 ## Themes
 
-"Casa del Papel" explores themes of resistance, rebellion, and the power of the people against oppressive systems. It also delves into the complex psychology of the characters, blurring the lines between hero and villain.
+"La Casa del Papel" explores themes of resistance, rebellion, and the power of the people against oppressive systems. It also delves into the complex psychology of the characters, blurring the lines between hero and villain.
 
 ## Intrigue and Heists
 
@@ -28,5 +28,5 @@ The series is known for its intricate heists and strategic maneuvers, as well as
 
 ## Conclusion
 
-"Casa del Papel" (Money Heist) is a gripping and addictive television series that has become a global sensation. Its compelling characters, intricate plot, and exploration of moral dilemmas make it a must-watch for fans of crime dramas and thrillers.
+"La Casa del Papel" (Money Heist) is a gripping and addictive television series that has become a global sensation. Its compelling characters, intricate plot, and exploration of moral dilemmas make it a must-watch for fans of crime dramas and thrillers.
 
